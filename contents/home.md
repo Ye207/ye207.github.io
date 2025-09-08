@@ -1,10 +1,12 @@
 
-She is an undergraduate student majoring in journalism at Nanjing University.
+南京大学新闻传播学院新闻学本科生。
 
-#### Contact
+#### 联系
 
 Email: 231810054[at]smail.nju.edu.cn
+Wechat：xiye092655
+QQ：2075936186
 
-#### Education
-Nanjing University, Journalism , 2023—2025.
+#### 教育
+南京大学，新闻学 ， 2023—2025.
 
